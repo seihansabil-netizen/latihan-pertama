@@ -1,0 +1,2 @@
+# latihan-pertama
+amau ganteng
